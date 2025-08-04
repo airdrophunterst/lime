@@ -2,7 +2,7 @@
 
 Tool được phát triển bởi nhóm tele Airdrop Hunter Siêu Tốc (https://t.me/airdrophuntersieutoc)
 
-Link tool:
+Link tool: https://amautomarket.com/products/lime-automate
 
 Link: [https://t.me/iMe_lime_bot](https://t.me/iMe_lime_bot/app?startapp=ref_NTMyMDg2MjkwMQ)
 
